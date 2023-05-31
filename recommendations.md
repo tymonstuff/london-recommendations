@@ -39,6 +39,8 @@ If you go deeper into Strand and Kings College, it’s a super new area that was
 
 - **Hayward Gallery** - probably my favourite pop up exhibition place. From 1 Jun they have the Union Jill exhibit all about a take on the Union Jack in face of environmental protest.
 
+- **Fashion and Textile Museum** - https://fashiontextilemuseum.org/ - on bermondsey street
+
 ### North of Tower Bridge
 
 - **Immersive Van Gough Exhibit**: some people say this is amazing, some say “I just paid £15 to stand in low res van Gough” - either way pretty cool https://vangoghexpo.com/london/ 
